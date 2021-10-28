@@ -2,7 +2,7 @@
 
 i am Sachin B K 
 
-I've ever since had a goal of becoming myself as a Web Developer. I'm basically from Karnataka, and I live in Davanagere. I'm currently a student. You can find me or else contact me on Twitter address given below👇🏻.
+I've ever since had a goal of becoming myself as a Web Developer. I'm basically from Karnataka, and I live in Davanagere. I'm Pursuing my Bachelor's. You can find me on Twitter address given below👇🏻.
 
 @Sachinjck1
 
