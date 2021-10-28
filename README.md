@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+i am Sachin B K 
+
+I've ever since had a goal of becoming myself as a Web Developer. I'm basically from Karnataka, and I live in Davanagere. I'm currently a student. You can find me or else contact me on Twitter address given below👇🏻.
+
+@Sachinjck1
+
 <!--
 **Sachinrichi/Sachinrichi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
